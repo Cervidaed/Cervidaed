@@ -1,4 +1,4 @@
-</large><code><img src="https://file.garden/Z3EALLWSDUQChgKp/pony-town-totally%20a%20scientist%20%5Bofftab%5D-nod-padded-toy124-4x.gif" align="right"/></img>
+</small><code><img src="https://file.garden/Z3EALLWSDUQChgKp/pony-town-totally%20a%20scientist%20%5Bofftab%5D-nod-padded-toy124-4x.gif" align="right"/></img>
 <div align="left"><img src="https://64.media.tumblr.com/6553f5110f6896eeb81e7b8dbd0d3f13/a2b9a9b92798b874-49/s100x200/8291a450846c2d5e932711f4572e5f49073284f4.gifv" align="left"/><h2><b>!I PUT MY LAME EXCUSE IN THE OVEN!</b></h2><font face ="Calibri"> hey chat, you probably found me on ponytown! (main on side obvs) i am ush offtab so please whisper to interact! ! ! & look at links for proper intro :P
 im currently interested in Disco elysium, Outlast, Overwatch, Forsaken, ETC 
 stamp collection below... heh <hr></font></div>
